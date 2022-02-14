@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Pinkurley
+- 👀 **I’m in interested** 👉 programation, games, study, draw
+- 🌱 **I’m currently learning** 👉 Python, JavaScript, computing
+- 📫 **How to reach me** 👉 *Twitter* = @isabelle_cirio // *Discord* = pinkurley@6246  // *Instagram* = @pinkurley_comms.open
